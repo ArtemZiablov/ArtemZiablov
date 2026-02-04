@@ -43,8 +43,8 @@
 
 ---
 
-### 🇺🇦 Support Ukraine
+### 🇺🇦 Stand with Ukraine
 
-If you'd like to support Ukraine, please consider donating to one of these verified organizations:
+Support Ukraine through these verified organisations:
 - [United24](https://u24.gov.ua/)
 - [Come Back Alive](https://savelife.in.ua/en/)
